@@ -1,0 +1,1 @@
+infelizmente o cruzeiro está na segunda divisão
